@@ -1,0 +1,1 @@
+this repo si on for my tea is if you copy this Fuck you loser, if you can't do these tasks, seriously, this is super easy. Seriously, reconsider continuing to study this, it's really simple, you're really useless.
